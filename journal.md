@@ -11,3 +11,4 @@ I think working in a virtual store for real money is a good idea. The Text state
 # September 30, 2025
 I dont know what 67 means.
 # October 6, 2025
+If I were in charge of the school I would change much about the Chromebooks. Due to the cell phone law being a state law I can't do much if anything to that ban. What I can change is the Chromebook like unbanning many sites like CoolMathGames and such. To make sure that students don't abuse this i could give the teacher the ability to suspend websites for up to a week. I'd also give teacher the ability to request sites be permanently banned for the school year if it's causing to much problems or if a website a teacher wants to use is blocked they can request a temporary unblocking of that website for up to a week. 
