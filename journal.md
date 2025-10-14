@@ -14,3 +14,5 @@ I dont know what 67 means.
 If I were in charge of the school I would change much about the Chromebooks. Due to the cell phone law being a state law I can't do much if anything to that ban. What I can change is the Chromebook like unbanning many sites like CoolMathGames and such. To make sure that students don't abuse this i could give the teacher the ability to suspend websites for up to a week. I'd also give teacher the ability to request sites be permanently banned for the school year if it's causing to much problems or if a website a teacher wants to use is blocked they can request a temporary unblocking of that website for up to a week. 
 # October 7, 2025 
 I finished the hourofcode activity Pickcode:Click a Cookie Game
+# October 14,2025
+The link to my Canva AI prompt is: [Understanding Electronegativity](https://electronegativity2.my.canva.site/)
