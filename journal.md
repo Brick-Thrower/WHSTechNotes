@@ -20,6 +20,6 @@ My program is designed to teach hoe electronegativity is affected by the number 
 # October 20, 2025
 | Name    | Class| Seat|
 | :-------| :----| :---|
-| Franklin|Second|19A  |
+| Franklin|Second|91A  |
 | Hardeep |Third |61F  |
 | Marla   |First |35B  |
