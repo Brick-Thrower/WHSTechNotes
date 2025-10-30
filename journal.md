@@ -14,7 +14,7 @@ I dont know what 67 means.
 If I were in charge of the school I would change much about the Chromebooks. Due to the cell phone law being a state law I can't do much if anything to that ban. What I can change is the Chromebook like unbanning many sites like CoolMathGames and such. To make sure that students don't abuse this i could give the teacher the ability to suspend websites for up to a week. I'd also give teacher the ability to request sites be permanently banned for the school year if it's causing to much problems or if a website a teacher wants to use is blocked they can request a temporary unblocking of that website for up to a week. 
 # October 7, 2025 
 I finished the hourofcode activity Pickcode:Click a Cookie Game
-# October 14,2025
+# October 14, 2025
 The link to my Canva AI prompt is: [Understanding Electronegativity](https://electronegativity2.my.canva.site/)
 My program is designed to teach hoe electronegativity is affected by the number of electrons and protons in an atom. Canva AI under stood my intentions very well. The interactive electronegativity explorer part worked very well. If I were to improve the prompt I would add a more precisedesciption on how long the test would be. Being good at prompt engineering could valuiable in future jobs as it could make jobs easier. 
 # October 20, 2025
