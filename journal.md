@@ -29,3 +29,5 @@ My program is designed to teach hoe electronegativity is affected by the number 
 | Fiona    | Gado Gado        | Creme Brulee       |
 | Tobias   | Shrimp Ceviche   | French Apple Cake  |
 | Leanne   | Beef Wellington  | Raspberry Tiramisu |
+# October 3, 2025
+If the SANP program runs out out of funding then many familys relying on it for access to healthy food will have a much harder time get food for them and their family. Also struggleing family will be hit the hardest. apps or websites could help by being like a gps where it could show nearby food banks, food deals, ect. What could make it difficult is the lack of trasportation or a lack of a cell phone. If I made a a tool to help solve food insecurity. it would show deals in nearby grocery stores allowing for people to shop for healthier food for a cheaper price. 
