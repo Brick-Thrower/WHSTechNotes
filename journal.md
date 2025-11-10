@@ -31,3 +31,5 @@ My program is designed to teach hoe electronegativity is affected by the number 
 | Leanne   | Beef Wellington  | Raspberry Tiramisu |
 # November 3, 2025
 If the SANP program runs out out of funding then many familys relying on it for access to healthy food will have a much harder time get food for them and their family. Also struggleing family will be hit the hardest. apps or websites could help by being like a gps where it could show nearby food banks, food deals, ect. What could make it difficult is the lack of trasportation or a lack of a cell phone. If I made a a tool to help solve food insecurity. it would show deals in nearby grocery stores allowing for people to shop for healthier food for a cheaper price. 
+# November 10, 2025
+The skills I am most proud of is my understanding of the atom from my chemistry class and my ablilty to understand math. i will use it to help me understand future ideas in the same subject. 
