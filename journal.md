@@ -35,3 +35,5 @@ If the SANP program runs out out of funding then many familys relying on it for 
 The skills I am most proud of is my understanding of the atom from my chemistry class and my ablilty to understand math. I will use it to help me understand future ideas in the same subject. Next year I will try to pass with around an 90 in both math and chemistry. I will also try to do an AP class in a science field.
 # November 17, 2025
 I am looking forward to Thanksgiving break as I will have a lot of free time. 
+# December 1, 2025
+As drones become a bigger industry more and more jobs are looking for those who have drone skills. Many feilds such as agriculture, marketing, ​delivery, ect all have a place for drones. Lets take a look at drone show technicians they make around $40,000 to  $70,000 annually. 
