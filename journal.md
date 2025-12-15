@@ -38,5 +38,6 @@ I am looking forward to Thanksgiving break as I will have a lot of free time.
 # December 1, 2025
 As drones become a bigger industry more and more jobs are looking for those who have drone skills. Many feilds such as agriculture, marketing, ​delivery, ect all have a place for drones. Lets take a look at drone show technicians they make around $40,000 to  $70,000 annually. 
 # December 8, 2025
-I belive the ai getting confused by if the school bus has a stop sign
- out or in. 
+I believe the ai getting confused by if the school bus has a stop sign out or in. To help stop this I would give the ai more videos of busses to help train the ai to understand the difference easier. We could also give the Ai access to Bus routes as to give the ai more evidence to distinguish if a bus is stopped or not.
+# December 15, 2025
+I'm planing to vist Iowa to vist my Grandma.
