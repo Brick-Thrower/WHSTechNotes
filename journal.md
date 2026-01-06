@@ -41,3 +41,5 @@ As drones become a bigger industry more and more jobs are looking for those who 
 I believe the ai getting confused by if the school bus has a stop sign out or in. To help stop this I would give the ai more videos of busses to help train the ai to understand the difference easier. We could also give the Ai access to Bus routes as to give the ai more evidence to distinguish if a bus is stopped or not.
 # December 15, 2025
 I'm planing to vist Iowa to vist my Grandma.
+# January 6, 2025
+I used technology during the break in several ways during break. I used my phonbe to track the time my fight would leave or when it would get delayed.  I also used technology to help me navigates to unfamiliar places like google maps. I even used it to text others to help plan events faster and talk to other while far away.
