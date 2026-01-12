@@ -43,3 +43,5 @@ I believe the ai getting confused by if the school bus has a stop sign out or in
 I'm planing to vist Iowa to vist my Grandma.
 # January 6, 2025
 I used technology during the break in several ways during break. I used my phonbe to track the time my fight would leave or when it would get delayed.  I also used technology to help me navigates to unfamiliar places like google maps. I even used it to text others to help plan events faster and talk to other while far away.
+# January 12, 2025 
+Autcraft was created to solve the lack of safe spaces of 
