@@ -44,4 +44,4 @@ I'm planing to vist Iowa to vist my Grandma.
 # January 6, 2025
 I used technology during the break in several ways during break. I used my phonbe to track the time my fight would leave or when it would get delayed.  I also used technology to help me navigates to unfamiliar places like google maps. I even used it to text others to help plan events faster and talk to other while far away.
 # January 12, 2025 
-Autcraft was created to solve the lack of safe spaces of 
+Autcraft was created to solve the lack of safe spaces of the early internet. Unmoderated severs like many in the early internet allowed cyber bullying, scams ect which can really affect some groups of people. Developers' choices can massively affect a user experience as they have a much more control of what happens on their site when compared to a regular user. Autcraft helps protects it's community by useing a strict moderation to keep hateful comments to a minimal. This makes Autcraft a great place for their group of people to make a strong community which further prevents hate as others can report them making them easy targetes for the moderation. 
