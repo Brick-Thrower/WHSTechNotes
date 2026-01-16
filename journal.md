@@ -41,7 +41,7 @@ As drones become a bigger industry more and more jobs are looking for those who 
 I believe the ai getting confused by if the school bus has a stop sign out or in. To help stop this I would give the ai more videos of busses to help train the ai to understand the difference easier. We could also give the Ai access to Bus routes as to give the ai more evidence to distinguish if a bus is stopped or not.
 # December 15, 2025
 I'm planing to vist Iowa to vist my Grandma.
-# January 6, 2025
+# January 6, 2026
 I used technology during the break in several ways during break. I used my phonbe to track the time my fight would leave or when it would get delayed.  I also used technology to help me navigates to unfamiliar places like google maps. I even used it to text others to help plan events faster and talk to other while far away.
-# January 12, 2025 
+# January 12, 2026 
 Autcraft was created to solve the lack of safe spaces of the early internet. Unmoderated severs like many in the early internet allowed cyber bullying, scams ect which can really affect some groups of people. Developers' choices can massively affect a user experience as they have a much more control of what happens on their site when compared to a regular user. Autcraft helps protects it's community by useing a strict moderation to keep hateful comments to a minimal. This makes Autcraft a great place for their group of people to make a strong community which further prevents hate as others can report them making them easy targetes for the moderation. 
