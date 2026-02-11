@@ -51,3 +51,5 @@ Autcraft was created to solve the lack of safe spaces of the early internet. Unm
 I took the MAP test during testing this week. The 2 ELAR tests were easy for most of the test. The hardest part for me was the spelling section which isn't one of my strong suits. I think that test prep could inprove my score but not by alot due to my problem be spelling it would be to try to memorize the every english words spelling. As for the math MAP test I didn't take it due to me being in Geometry. 
 # February 2, 2026
 Personal hygiene and self-care is important in shared environments as it reduces the chances of you and others getting sick. Loud conversations, strong smells, and distracting behavior could  affect others’ ability to focus/feel comfortable by allowing them to have their full attention on work and not something else. Self-regulation is an important skill for schools and future workplaces because it keeps things professional and reduce fighting/arguments.
+# February 10, 2026
+I don't enjoy football because I just never got into it or learned the rules of it. I also never watched The Super Bowl XL.
