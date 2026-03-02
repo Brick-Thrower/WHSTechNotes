@@ -53,3 +53,19 @@ I took the MAP test during testing this week. The 2 ELAR tests were easy for mos
 Personal hygiene and self-care is important in shared environments as it reduces the chances of you and others getting sick. Loud conversations, strong smells, and distracting behavior could  affect others’ ability to focus/feel comfortable by allowing them to have their full attention on work and not something else. Self-regulation is an important skill for schools and future workplaces because it keeps things professional and reduce fighting/arguments.
 # February 10, 2026
 I don't enjoy football because I just never got into it or learned the rules of it. I also never watched The Super Bowl XL.
+# March 2
+Company: Booz Allen Hamilton
+Job Title: Cybersecurity Analyst 
+Education Required:
+Experience Required:
+Skills/Tools/Languages:
+Certifications:
+What the job does:
+
+Company:Rackspace
+Job Title: Site Reliability Engineer
+Education Required:
+Experience Required:
+Skills /Tools/Languages:
+Certifications:
+What the job does:
