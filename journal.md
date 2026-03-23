@@ -69,3 +69,6 @@ Experience Required:
 Skills /Tools/Languages:
 Certifications:
 What the job does:
+
+# March 23, 2026 
+During the bracket challenge I guessed to determine who moved forward. If I used data I probably could have made a much better bracket. A computer program using this type of data to make better predictions than a person guessing as if it could calculate more complex comparisons to predict the game outcome. Tech jobs that might involve working with sports data are like people in betting sites. 
