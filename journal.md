@@ -77,3 +77,6 @@ Upsets happen due to ingame actions and outcomes that can't be predicted to happ
 # April 9, 2026 
 My arggument would be that most if not all of our recklessness is easily avoidable. My evidence is that most deaths would befrom the enviornment so giving us the breakdown of the local wildlife, plantlife and a map of the near by area would prevent most if not all deaths that may happen. This argument world apeal to the Ai's logic as it would be the most effective. First I would try to get their attention by saying that keeping us cooped up would lead to stress and potential infighting. Then I would give the Ai my reason to let us out. That would be more then likely be enough to win us freedom. 
 # April 13, 2026 
+
+# April 20, 2026
+AI changes the way people experience and trust content by taking away or reducing the human touch. Ai art often lacks thing that human artists don't, such as shading color or body proportion. 
