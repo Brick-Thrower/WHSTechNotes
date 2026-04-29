@@ -80,3 +80,4 @@ My arggument would be that most if not all of our recklessness is easily avoidab
 
 # April 20, 2026
 AI changes the way people experience and trust content by taking away or reducing the human touch. Ai art often lacks thing that human artists don't, such as shading color or body proportion. 
+# April 29, 2026
