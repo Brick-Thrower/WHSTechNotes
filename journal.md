@@ -80,4 +80,5 @@ My arggument would be that most if not all of our recklessness is easily avoidab
 
 # April 20, 2026
 AI changes the way people experience and trust content by taking away or reducing the human touch. Ai art often lacks thing that human artists don't, such as shading color or body proportion. 
-# April 29, 2026
+# April 27, 2026
+While I look at social media technology influences it in many ways like using algorithms and speeding the process up. Algorithms like the ones on youtube determine the selection of videos you'll see depending on what it thinks you'll like. So, the algorithm influences what I see online. Another, way tech influences what I watch is through making posting vedios easier like the fact youtube has a built in editor . Due to making videos being so easy more people can do them influencing what I have avalable to watch. 
