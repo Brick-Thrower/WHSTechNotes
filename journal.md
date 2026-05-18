@@ -86,4 +86,4 @@ While I look at social media technology influences it in many ways like using al
 # May 6, 2026 
 I am personally helping train AI in a small way with the apps and tools that I use. I help train as in a moblie game I play I can watch adds to  get buffs an one of the adds that I've seen is one where I had to choose between two photos and I can tell that they are definitely AI generated. This is probably used to see which one is better so they can use that one for furture testing.  Other than that example I don't really use AI or train it unless I'm forced to. One example of  being forced to see AI is google's Gemini AI which just shows up when you normaly search for something. 
 # May 11, 2026
-In my confidence i have improved
+Throughout The year I have improved my own confidence in myself by maintaining a high grade in my classes. 
