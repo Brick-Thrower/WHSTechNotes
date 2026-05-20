@@ -88,3 +88,4 @@ I am personally helping train AI in a small way with the apps and tools that I u
 # May 11, 2026
 Throughout The year I have improved my own confidence in myself by maintaining a high grade in my classes. 
 # May 18, 2026
+If I were to describe my freind of mine i would describe him as a white male, that is large in stature, blond hair, brown eyes and, has light red mark spanding his arms and up. 
