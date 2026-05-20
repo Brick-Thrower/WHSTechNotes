@@ -86,6 +86,6 @@ While I look at social media technology influences it in many ways like using al
 # May 6, 2026 
 I am personally helping train AI in a small way with the apps and tools that I use. I help train as in a moblie game I play I can watch adds to  get buffs an one of the adds that I've seen is one where I had to choose between two photos and I can tell that they are definitely AI generated. This is probably used to see which one is better so they can use that one for furture testing.  Other than that example I don't really use AI or train it unless I'm forced to. One example of  being forced to see AI is google's Gemini AI which just shows up when you normaly search for something. 
 # May 11, 2026
-Throughout The year I have improved my own confidence in myself by maintaining a high grade in my classes. 
+Throughout The year I have improved my own confidence in myself. I improved my confidence by maintaining a high grade in my classes. This improvement in my confidence has lead to me being more trusting of my own answers. An exsample of the last sentence is I corrected a teacher after seeing an error in my notes. This differnce in confidence is different then the begining of the school year as I was new. 
 # May 18, 2026
 If I were to describe my freind of mine i would describe him as a white male, that is large in stature, blond hair, brown eyes and, has light red mark spanding his arms and up. 
